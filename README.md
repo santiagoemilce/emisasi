@@ -1,0 +1,2 @@
+# emisasi
+Descomplicada 
